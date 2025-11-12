@@ -1,4 +1,4 @@
-How to Prepare for Trekking in Nepal (Beginner's Guide)
+**How to Prepare for Trekking in Nepal (Beginner's Guide)**
 
 Nepal, with its soaring peaks and serene valleys, is a dream destination for adventurers. Home to eight of the world's ten highest mountains, including Mount Everest, its landscapes attract trekkers from across the globe. If you're planning your first trek, you're in for an unforgettable experience. Proper preparation will help you enjoy those breathtaking Himalayan views.
 
