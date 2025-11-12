@@ -6,8 +6,8 @@ This guide will take you through what you need to know to prepare for your trek:
 
 Why Nepal Is a Trekker's Paradise
 
-Nepal offers trekking for every type of traveler. From the iconic Everest Base Camp to the lush Annapurna Circuit trek, each route provides unique glimpses into the country's rich culture, with visits to ancient monasteries, interactions with friendly locals, and Sherpa hospitality.
-Trekking in Nepal is more than a physical challenge; it's a journey of self-discovery. The tranquility of the mountains, vibrant prayer flags, and vast landscape create a sense of peace and perspective. It's an adventure that tests your limits and rewards you with lasting memories.
+Nepal offers trekking for every type of traveler. From the iconic Everest Base Camp to the lush [Annapurna Circuit trek](https://boundlessadventure.com/annapurna-circuit-trekking), each route provides unique glimpses into the country's rich culture, with visits to ancient monasteries, interactions with friendly locals, and Sherpa hospitality.
+[Trekking in Nepal](https://boundlessadventure.com/nepal-trekking-information) is more than a physical challenge; it's a journey of self-discovery. The tranquility of the mountains, vibrant prayer flags, and vast landscape create a sense of peace and perspective. It's an adventure that tests your limits and rewards you with lasting memories.
 Understanding Your Trekking Fitness Level
 Begin by honestly assessing your physical condition. You don't need to be an athlete, but a good baseline of fitness is crucial for safety and enjoyment. Trekking involves 5-7 hours of walking per day on uneven terrain at high altitudes.
 Evaluate Your Current Fitness
